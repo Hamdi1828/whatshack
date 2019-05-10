@@ -1,3 +1,3 @@
 Gw ganteng
 
-Nih tool buat haik whatsapp 
+Nih tool buat haik whatsapp
